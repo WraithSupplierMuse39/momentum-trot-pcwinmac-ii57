@@ -1,4 +1,4 @@
-# 
+# Professionnel momentum trading bot scripts for Mac OS | Premium momentum trading bot scripts for PC Windows. Featuring API d'échange centralisé and analyse de la dynamique — optimized for maximum performance.
 
 
 
